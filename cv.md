@@ -3,7 +3,7 @@
 ## Junior Developer
 
 Contact info:
-nikolyav@gmail.com
+nikolyav@gmail.com  
 Mobile: +48 793 295 512
 
 ### Summary
